@@ -35,6 +35,14 @@
 
 超硬核法律类知识讲堂
 
+### case -  5
+
+[动动枪DongDongGun](https://space.bilibili.com/490494088?from=search&seid=10986235792229287151)
+
+单个视频爆火典型
+
+[为什么给视频网站充了会员，他们一年还是要赔几百亿](https://www.bilibili.com/video/BV1tE411c7H1)
+
 ### 个人建议
 -  热点，快消时代没有热点就没有流量
 -  干货，不用多说
