@@ -2,7 +2,7 @@
 
 [官方创作手册](https://www.bilibili.com/read/cv5371885)
 
-[内部指南（上面压缩包里，不要点这个链接，你会后悔的）](https://www.bilibili.com/video/av170001)
+[内部指南（上面压缩包里，不要点这个链接，你会后悔的）](https://www.bilibili.com/av170001)
 
 
 ### case - 1
