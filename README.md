@@ -9,8 +9,7 @@
 
 [硬核的半佛仙人](https://space.bilibili.com/37663924?from=search&seid=4603637675335489298)
 
-[半佛风格分析及模仿案例（评论第一条有亮点）]([https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638](https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638)
-)
+[半佛风格分析及模仿案例（评论第一条有亮点）](https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638)
 
 杂谈类，主业风控，知乎和公众号转b站，图文转视频
 
