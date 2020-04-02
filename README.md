@@ -7,26 +7,26 @@
 
 ### case - 1
 
-杂谈类，主业风控，知乎和公众号转b站，图文转视频
-
 [硬核的半佛仙人](https://space.bilibili.com/37663924?from=search&seid=4603637675335489298)
 
-[半佛风格分析及模仿案例(被睿总夸是个小天才-。-)]([https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638](https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638)
+[半佛风格分析及模仿案例（评论第一条有亮点）]([https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638](https://www.bilibili.com/video/BV1HE411s7DE?from=search&seid=5153815107066964638)
 )
+
+杂谈类，主业风控，知乎和公众号转b站，图文转视频
 
 ### case - 2
 
-[冲浪普拉斯](https://space.bilibili.com/290548469?from=search&seid=2193581407440348509)
+[冲浪普拉斯:](https://space.bilibili.com/290548469?from=search&seid=2193581407440348509)
 
 经管分析，比较硬核，同知乎和公众号转，中国商业史开始火
 
-[巫师财经](https://space.bilibili.com/472747194?from=search&seid=7293187262907001729)
+[巫师财经:](https://space.bilibili.com/472747194?from=search&seid=7293187262907001729)
 
 金融分析，主打资本战争，内容没问题只不过是从别人的其他平台盗的内容做成的视频，被抵制疯狂掉粉
 
 ### case - 3
 
-[观视频](https://space.bilibili.com/54992199?from=search&seid=8402997169175338067)
+[观视频:](https://space.bilibili.com/54992199?from=search&seid=8402997169175338067)
 
 热点评析，结合硬核知识的科普类
 
