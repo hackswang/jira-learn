@@ -2,7 +2,7 @@
 
 [官方创作手册](https://www.bilibili.com/read/cv5371885)
 
-[内部指南（上面压缩包里，不要点这个链接）](www.bilibili.com)
+[内部指南（上面压缩包里，不要点这个链接）](https://www.bilibili.com)
 
 
 ### case - 1
